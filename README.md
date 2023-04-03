@@ -1,1 +1,1 @@
-# websitePhotographer-github.io
+# website Photographer-github.io
